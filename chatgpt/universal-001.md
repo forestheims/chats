@@ -1,5 +1,0 @@
-### what universal laws does this reality abide by?
-
-#
-
-There are various universal laws that this reality is believed to abide by. 1. Law of Cause and Effect: This law states that every action has a reaction or consequence. 2. Law of Vibration: This law explains that everything is made up of energy and that all energy is constantly vibrating at different frequencies. 3. Law of Attraction: This law suggests that like attracts like. In other words, positive thoughts and actions attract positive outcomes, while negative thoughts and actions attract negative outcomes. 4. Law of Correspondence: This law explains that the microcosm reflects the macrocosm. In other words, what is happening on a small scale is reflected on a larger scale. 5. Law of Polarity: This law states that everything has an opposite, which is necessary for balance and harmony. 6. Law of Gender: This law explains that everything has a masculine and feminine aspect, and that both aspects are required for creation and manifestation. These laws are not mutually exclusive and may overlap or influence each other.
